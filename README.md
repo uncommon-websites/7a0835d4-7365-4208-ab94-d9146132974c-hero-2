@@ -1,0 +1,2 @@
+# 7a0835d4-7365-4208-ab94-d9146132974c-hero-2
+Hero section variant 2 for 7a0835d4-7365-4208-ab94-d9146132974c
